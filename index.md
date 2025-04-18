@@ -1,0 +1,4 @@
+---
+title: BEULAH 25 WEDDING SOLEMNIZATION
+---
+
