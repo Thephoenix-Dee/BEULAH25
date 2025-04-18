@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: BEULAH 25 WEDDING SOLEMNIZATION
 ---
 
